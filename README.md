@@ -1,5 +1,4 @@
-# Aspen10
-How to check into your vacation rental home with Plumas Pines Vacation Homes and Rentals
+# How to check into your vacation rental home with Plumas Pines Vacation Homes and Rentals
 
 No longer do you need to come to our office and pick up keys.  We are sending you directly to your vacation rental home!
 
@@ -42,3 +41,9 @@ Turn left on Pine Cone court.  Turn right on Aspen circle.  As you enter the cir
 Thank you very much for your reservation! We are very happy that you are going to vacation in our beautiful part of the world.......your confirmation number for your reservation with us is:
 
 9646563.  Aspen 10
+
+Graeagle CA 96103
+
+reservations@plumaspines.com
+
+530-836-0444
