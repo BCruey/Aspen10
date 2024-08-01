@@ -40,7 +40,7 @@ Turn left on Pine Cone court.  Turn right on Aspen circle.  As you enter the cir
 
 Thank you very much for your reservation! We are very happy that you are going to vacation in our beautiful part of the world.......your confirmation number for your reservation with us is:
 
-9646563.  Aspen 10
+9646563  Aspen 10
 
 Graeagle CA 96103
 
